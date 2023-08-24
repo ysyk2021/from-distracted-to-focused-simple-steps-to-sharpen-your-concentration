@@ -1,5 +1,3 @@
-The History of Concentration
-===============================================================
 
 In this chapter, we will explore the history of concentration. Throughout human history, individuals have sought to sharpen their focus and improve their concentration skills. By understanding the historical roots of concentration, we can gain insight into the origins of modern techniques for improving focus and managing distractions.
 

@@ -1,5 +1,3 @@
-Building Motivation
-===================================================
 
 Motivation is the key to building focus and concentration. In this chapter, we'll explore the psychology of motivation, strategies for building motivation, and tips for staying motivated.
 

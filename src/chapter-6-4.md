@@ -1,5 +1,3 @@
-Overcoming Procrastination
-======================================================
 
 In this chapter, we will explore the importance of time management for improving concentration and overcoming procrastination. Procrastination can be a major barrier to concentration and productivity, and effective time management is key to breaking this cycle. We will discuss strategies for prioritizing tasks, setting goals, and developing effective time management habits.
 

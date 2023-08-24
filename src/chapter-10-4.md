@@ -1,5 +1,3 @@
-Building a Support System
-=======================================================================
 
 In this chapter, we will discuss the importance of building a support system to sustain improved concentration. We will explore the benefits of having a support system, how to identify individuals who can provide support, and strategies for building and maintaining a strong support system.
 

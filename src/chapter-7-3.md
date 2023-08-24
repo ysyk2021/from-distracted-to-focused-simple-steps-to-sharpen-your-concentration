@@ -1,5 +1,3 @@
-Overcoming Addiction to Technology
-============================================================
 
 Technology has revolutionized the way we live and work, but it can also become addictive. In this chapter, we'll explore strategies for overcoming addiction to technology and regaining control over our online lives.
 

@@ -1,5 +1,3 @@
-Chapter 6: Digital Detox
-========================
 
 In today's digital age, technology can be a significant source of distraction, impacting our ability to focus and concentrate. In this chapter, we'll explore the impact of digital distractions on concentration, strategies for reducing digital distractions, ways to overcome addiction to technology, and the importance of building self-care habits.
 

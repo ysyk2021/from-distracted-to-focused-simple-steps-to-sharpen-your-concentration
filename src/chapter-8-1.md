@@ -1,5 +1,3 @@
-Understanding the Nature of Multitasking
-============================================================================
 
 Multitasking has become a way of life for many people, but it's not always as productive as we think. In this chapter, we'll explore the nature of multitasking and its effects on concentration and productivity.
 

@@ -1,5 +1,3 @@
-The Impact of Digital Distractions on Concentration
-=============================================================================
 
 In today's digital age, we are constantly bombarded with notifications, emails, and social media updates. While technology has revolutionized the way we live and work, it can also be a major distraction that negatively impacts our concentration. In this chapter, we'll explore the impact of digital distractions on concentration and strategies for digital detox.
 

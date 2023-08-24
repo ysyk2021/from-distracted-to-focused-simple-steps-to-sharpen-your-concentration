@@ -1,5 +1,3 @@
-Chapter 3: Understanding Focus
-==============================
 
 In this chapter, we will explore the concept of focus and its importance for concentration and productivity. We will discuss strategies for building focus, understanding the impact of focus on our daily lives, and building motivation to maintain our focus.
 

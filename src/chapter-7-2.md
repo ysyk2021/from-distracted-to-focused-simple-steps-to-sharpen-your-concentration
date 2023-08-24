@@ -1,5 +1,3 @@
-Strategies for Reducing Digital Distractions
-======================================================================
 
 In today's digital age, it's easy to become overwhelmed by technology and the constant flow of information. Digital distractions can take a toll on your concentration and productivity. In this chapter, we'll explore strategies for reducing digital distractions and regaining control over your online life.
 

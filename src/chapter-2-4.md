@@ -1,5 +1,3 @@
-How to Embrace Concentration as a Skill
-==========================================================================
 
 In this chapter, we will define concentration and explore how to embrace it as a skill. We will explore the benefits of concentration, common misconceptions about concentration, and strategies for developing and improving concentration skills.
 

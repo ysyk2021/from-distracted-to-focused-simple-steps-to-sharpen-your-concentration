@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Time Management
-=====================================================================================
 
 Time management is critical to maximizing productivity and achieving your goals. In this chapter, we'll explore the principles of effective time management and how to apply them to your daily life.
 

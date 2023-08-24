@@ -1,5 +1,3 @@
-Developing a Growth Mindset
-==========================================================================
 
 In this chapter, we will explore the importance of developing a growth mindset for improved concentration. We will discuss the differences between a fixed and growth mindset, how to identify limiting beliefs, and strategies for cultivating a growth mindset.
 

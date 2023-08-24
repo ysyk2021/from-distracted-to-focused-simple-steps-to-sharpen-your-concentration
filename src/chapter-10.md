@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Improved Concentration
-============================================
 
 Improving your concentration is a journey that requires ongoing effort and commitment. In this chapter, we will explore strategies for sustaining improved concentration over the long-term.
 

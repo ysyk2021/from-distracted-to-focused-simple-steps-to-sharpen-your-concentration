@@ -1,5 +1,3 @@
-Chapter 5: Time Management
-==========================
 
 Time is a limited resource and effective time management is vital for achieving success and reducing stress. In this chapter, we'll explore the principles of effective time management, strategies for managing your time effectively, building self-awareness, and overcoming procrastination.
 

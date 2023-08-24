@@ -1,5 +1,3 @@
-Building a Support System
-=======================================================================================
 
 In this chapter, we will explore how to apply focus to personal and professional goals by building a support system. We will discuss the benefits of having a support system and provide strategies for building one.
 

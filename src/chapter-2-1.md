@@ -1,5 +1,3 @@
-What is concentration?
-=========================================================
 
 In this chapter, we will explore the concept of concentration and define what it means. Understanding the basic principles of concentration is essential for improving your ability to focus, manage distractions, and achieve your goals.
 

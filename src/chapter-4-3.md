@@ -1,5 +1,3 @@
-Understanding the Impact of Focus
-=================================================================
 
 Focus is a critical component of productivity and success. In this chapter, we'll explore the impact of focus on our lives, how to improve our focus, and practical ways to incorporate focus into our daily routines.
 

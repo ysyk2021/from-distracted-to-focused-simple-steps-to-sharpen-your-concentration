@@ -1,5 +1,3 @@
-Strategies for Building Focus
-=============================================================
 
 In this chapter, we will discuss strategies for building focus and improving productivity. We will explore techniques for overcoming distractions and maintaining concentration, as well as strategies for building our mental stamina and staying motivated.
 

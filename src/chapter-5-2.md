@@ -1,5 +1,3 @@
-Strategies for Identifying and Eliminating Distractions
-============================================================================================================
 
 Distractions can be a major obstacle to concentration and productivity. In this chapter, we'll explore strategies for identifying and eliminating distractions so you can stay focused and achieve your goals.
 

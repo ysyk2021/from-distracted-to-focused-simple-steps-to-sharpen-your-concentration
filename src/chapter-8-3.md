@@ -1,5 +1,3 @@
-Building a Growth Mindset around Focus
-==========================================================================
 
 In this chapter, we will explore the challenges of multitasking and the importance of developing a growth mindset around focus. We will discuss strategies for avoiding the pitfalls of multitasking, building resilience in the face of distractions, and prioritizing focus to increase productivity.
 

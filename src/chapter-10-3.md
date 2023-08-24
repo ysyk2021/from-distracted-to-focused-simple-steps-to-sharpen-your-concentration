@@ -1,5 +1,3 @@
-Overcoming Burnout and Exhaustion
-===============================================================================
 
 In this chapter, we will discuss how to overcome burnout and exhaustion when working to sustain improved concentration. We will explore the signs of burnout and exhaustion, the causes of these issues, and strategies for prevention and recovery.
 

@@ -1,5 +1,3 @@
-Sustaining Improved Concentration Over the Long-Term
-==================================================================================================
 
 Improving your concentration is not a one-time fix. It requires ongoing effort to sustain improved concentration over the long-term. In this chapter, we will explore strategies for maintaining your focus and concentration over time.
 

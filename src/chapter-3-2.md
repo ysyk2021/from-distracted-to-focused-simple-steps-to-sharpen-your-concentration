@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs about Concentration
-==============================================================================================
 
 In this chapter, we will discuss the role of limiting beliefs in our ability to concentrate and achieve our goals. We will explore strategies for identifying and overcoming these beliefs, so that we can improve our concentration and productivity.
 

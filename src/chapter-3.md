@@ -1,5 +1,3 @@
-Chapter 2: Mindset for Improved Concentration
-=============================================
 
 In this chapter, we will explore the importance of mindset when it comes to improving concentration. We will discuss strategies for developing a growth mindset, overcoming limiting beliefs, building self-discipline, and using mindfulness techniques to sharpen our focus and increase productivity.
 

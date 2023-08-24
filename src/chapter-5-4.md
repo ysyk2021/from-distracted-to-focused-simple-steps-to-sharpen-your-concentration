@@ -1,5 +1,3 @@
-Building Emotional Intelligence
-====================================================================================
 
 Distractions can significantly impact our ability to focus and achieve our goals. In this chapter, we'll explore how to identify and eliminate distractions, the role of emotional intelligence in staying focused, and practical ways to build emotional intelligence.
 

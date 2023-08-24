@@ -1,5 +1,3 @@
-Strategies for Maintaining Motivation and Inspiration
-===================================================================================================
 
 Improving your concentration takes effort, but sustaining it over time requires ongoing commitment and motivation. In this chapter, we will explore strategies for maintaining your focus and staying motivated.
 

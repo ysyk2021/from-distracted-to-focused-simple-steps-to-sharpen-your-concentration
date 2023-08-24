@@ -1,5 +1,3 @@
-Chapter 7: Navigating Multitasking
-==================================
 
 In today's fast-paced world, multitasking has become a way of life for many people. We juggle multiple tasks and responsibilities at the same time, often without realizing the toll it takes on our concentration and productivity. In this chapter, we'll explore the nature of multitasking and strategies for navigating it effectively.
 

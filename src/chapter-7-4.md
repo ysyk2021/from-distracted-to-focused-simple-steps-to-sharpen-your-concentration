@@ -1,5 +1,3 @@
-Building Self-Care Habits
-===================================================
 
 In today's world, digital devices have become an integral part of our daily lives. From smartphones to laptops, we're constantly connected and bombarded with notifications and messages. While technology has many benefits, it can also be a major source of distraction and stress. In this chapter, we'll explore the concept of a digital detox and how building self-care habits can help us overcome digital distractions and improve our focus.
 

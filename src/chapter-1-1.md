@@ -1,5 +1,3 @@
-The Importance of Focus in Productivity
-=====================================================
 
 In today's fast-paced and technology-driven world, we are constantly bombarded with distractions that can hinder our ability to stay focused and productive. From social media notifications to email alerts and text messages, it's easy to get sidetracked and lose sight of our goals.
 

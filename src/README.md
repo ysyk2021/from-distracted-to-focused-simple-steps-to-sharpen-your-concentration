@@ -1,4 +1,4 @@
-# Introduction
+
 
 In a world filled with constant distractions, staying focused and productive can be a challenge. Whether you're trying to complete a work project, study for an exam, or simply stay present in the moment, improving your concentration is essential for success.
 

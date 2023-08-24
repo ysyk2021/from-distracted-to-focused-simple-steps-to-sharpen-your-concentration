@@ -1,5 +1,3 @@
-Overcoming Overwhelm
-========================================================
 
 In this chapter, we will discuss the strategies for overcoming overwhelm caused by multitasking. We will explore ways to prioritize tasks, manage time effectively, and cultivate a calm and focused mindset that can help us stay on track.
 

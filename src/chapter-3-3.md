@@ -1,5 +1,3 @@
-Strategies for Building Self-Discipline
-======================================================================================
 
 In this chapter, we will explore the importance of self-discipline for building focus and achieving our goals. We will discuss the benefits of having a strong mindset and strategies for building self-discipline.
 

@@ -1,5 +1,3 @@
-Chapter 1: Defining Concentration
-=================================
 
 In this chapter, we will define concentration and explore its history and role in personal and professional success. We will also discuss how to embrace concentration as a skill.
 

@@ -1,5 +1,3 @@
-Building Self-Awareness
-===================================================
 
 In this chapter, we will explore the importance of self-awareness for effective time management. We will discuss strategies for building self-awareness, understanding our priorities, and creating an effective schedule.
 

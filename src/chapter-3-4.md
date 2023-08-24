@@ -1,5 +1,3 @@
-The Power of Mindfulness
-=======================================================================
 
 In this chapter, we will explore the concept of mindfulness and its importance for improving concentration and productivity. We will discuss the benefits of mindfulness, techniques for practicing mindfulness, and how to incorporate mindfulness into our daily lives.
 

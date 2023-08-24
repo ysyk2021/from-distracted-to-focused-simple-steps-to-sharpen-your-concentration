@@ -1,5 +1,3 @@
-Chapter 4: Identifying and Eliminating Distractions
-===================================================
 
 Distractions are a major obstacle to achieving focus and productivity. Whether it's the constant notifications from our phones or the temptation to check social media, distractions can prevent us from completing important tasks and reaching our goals. In this chapter, we'll explore the importance of effective distraction management and strategies for identifying and eliminating distractions.
 

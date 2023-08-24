@@ -1,5 +1,3 @@
-Chapter 8: Applying Focus to Personal and Professional Goals
-============================================================
 
 In this chapter, we will examine the role that focus plays in achieving personal and professional goals. We will explore strategies for applying focus to your goals, building a support system, and the impact of focus on personal and professional success.
 
