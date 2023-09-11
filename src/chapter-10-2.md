@@ -1,5 +1,4 @@
-Chapter 12: Strategies for Maintaining Motivation and Inspiration
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for maintaining motivation and inspiration. Staying motivated and inspired is crucial for sharpening your concentration and achieving your goals. By implementing the following strategies, you can cultivate a mindset that keeps you motivated and inspired throughout your journey.
 

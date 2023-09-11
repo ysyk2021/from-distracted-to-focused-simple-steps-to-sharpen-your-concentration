@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Improved Concentration Over the Long-Term
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss strategies for sustaining improved concentration over the long-term. While developing focus is important, it is equally crucial to maintain and strengthen your ability to concentrate consistently. By implementing the following strategies into your daily life, you can ensure that your enhanced concentration becomes a lasting habit.
 

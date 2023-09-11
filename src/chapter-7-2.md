@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Reducing Digital Distractions
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies and techniques to reduce digital distractions and reclaim our focus in the digital age. Our constant exposure to smartphones, social media, and endless notifications can significantly hinder our concentration. By implementing these strategies, we can create a more mindful and productive relationship with technology.
 

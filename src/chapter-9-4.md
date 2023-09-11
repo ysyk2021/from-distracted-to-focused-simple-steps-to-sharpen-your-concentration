@@ -1,5 +1,4 @@
-Chapter 8: The Impact of Focus on Personal and Professional Success
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that focus can have on personal and professional success. Developing and maintaining a high level of focus is crucial for achieving your goals, enhancing productivity, and unlocking your full potential. Let's delve into the various ways in which focus can positively influence your life.
 

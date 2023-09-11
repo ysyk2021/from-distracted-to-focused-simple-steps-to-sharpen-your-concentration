@@ -1,5 +1,4 @@
-Chapter 2: The Role of Concentration in Personal and Professional Success
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that concentration has on personal and professional success. Understanding how concentration influences various aspects of our lives can motivate us to prioritize and develop this essential skill.
 

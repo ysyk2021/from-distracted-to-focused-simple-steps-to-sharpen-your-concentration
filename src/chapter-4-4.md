@@ -1,5 +1,4 @@
-Chapter 4: Building Motivation
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of motivation in sharpening our concentration. Motivation serves as the driving force behind our ability to focus and sustain our attention on tasks and goals. By understanding how to build and nurture motivation, we can enhance our concentration and achieve greater success.
 

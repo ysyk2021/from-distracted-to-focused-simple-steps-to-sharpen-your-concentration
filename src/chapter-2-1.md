@@ -1,5 +1,4 @@
-Chapter 1: What is Concentration?
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of concentration and its significance in our daily lives. Understanding what concentration is and how it impacts our productivity and overall well-being is essential for developing strategies to sharpen this crucial skill.
 

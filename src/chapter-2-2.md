@@ -1,5 +1,4 @@
-Chapter 3: The History of Concentration
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fascinating history of concentration and how it has evolved over time. From ancient philosophical teachings to modern scientific research, understanding the historical context can provide valuable insights into the development of this crucial skill.
 

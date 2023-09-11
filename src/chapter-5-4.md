@@ -1,5 +1,4 @@
-Chapter 9: Building Emotional Intelligence
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the topic of building emotional intelligence to enhance your focus and concentration. Emotional intelligence is the ability to recognize, understand, and manage your own emotions as well as the emotions of others. By developing emotional intelligence, you can navigate distractions, regulate your emotions, and maintain a focused and productive mindset.
 

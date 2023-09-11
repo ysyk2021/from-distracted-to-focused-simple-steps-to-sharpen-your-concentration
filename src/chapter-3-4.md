@@ -1,5 +1,4 @@
-Chapter 5: The Power of Mindfulness
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative power of mindfulness in sharpening our concentration. Mindfulness is a practice that cultivates present-moment awareness and non-judgmental attention. By incorporating mindfulness into our daily lives, we can strengthen our ability to focus, enhance our overall well-being, and navigate the digital age with clarity and intention.
 

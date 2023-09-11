@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Addiction to Technology
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the topic of overcoming addiction to technology and regaining control over our digital habits. With the increasing reliance on technology in our daily lives, it is crucial to recognize and address the addictive nature of certain digital platforms and devices. By implementing the strategies and techniques outlined in this chapter, we can break free from unhealthy technology dependencies and develop a healthier relationship with digital tools.
 

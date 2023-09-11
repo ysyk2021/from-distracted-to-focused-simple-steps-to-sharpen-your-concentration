@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Managing Your Time Effectively
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced world, managing time effectively has become increasingly crucial. The ability to focus and allocate time to essential tasks directly impacts productivity and overall success. In this chapter, we will explore various strategies and techniques that can help you manage your time more effectively and enhance your concentration.
 

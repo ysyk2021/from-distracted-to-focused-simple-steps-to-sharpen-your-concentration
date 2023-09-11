@@ -1,5 +1,4 @@
-Chapter 4: Building Self-Awareness
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-awareness is the foundation upon which we can build focus and sharpen our concentration. It involves developing a deep understanding of our thoughts, emotions, behaviors, and the impact they have on our ability to stay focused. In this chapter, we will explore the importance of self-awareness and how it can contribute to enhancing our concentration.
 

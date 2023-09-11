@@ -1,5 +1,4 @@
-Chapter 4: The Impact of Digital Distractions on Concentration
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that digital distractions have on our ability to concentrate effectively. In an increasingly connected world, where technology permeates nearly every aspect of our lives, it is crucial to understand how these distractions affect our concentration and discover strategies to mitigate their negative effects.
 

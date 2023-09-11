@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Building Self-Discipline
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for building self-discipline to improve your ability to stay focused and concentrate on tasks. Self-discipline plays a crucial role in overcoming distractions and maintaining long-term concentration. By implementing the following strategies, you can develop the self-discipline necessary to enhance your focus and achieve your goals.
 

@@ -1,5 +1,4 @@
-Chapter 11: Building Self-Care Habits
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of self-care in maintaining focus and sharpening your concentration. Self-care involves taking proactive steps to prioritize your physical, mental, and emotional well-being. By incorporating self-care habits into your daily routine, you can enhance your ability to concentrate and sustain long-term focus.
 

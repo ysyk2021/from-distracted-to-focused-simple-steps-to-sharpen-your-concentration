@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Impact of Focus
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that focus has on our lives and explore how sharpening our concentration can significantly enhance our productivity, performance, and overall well-being.
 

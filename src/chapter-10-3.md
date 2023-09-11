@@ -1,5 +1,4 @@
-Chapter 11: Overcoming Burnout and Exhaustion
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the detrimental effects of burnout and exhaustion on concentration and explore strategies to overcome them. Burnout and exhaustion can significantly impair your ability to focus and concentrate, making it crucial to address and manage these challenges effectively.
 

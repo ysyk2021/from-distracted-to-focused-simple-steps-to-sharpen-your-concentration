@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Nature of Multitasking
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of multitasking and explore its effects on our concentration and productivity. While many people perceive multitasking as a valuable skill, it is important to understand its limitations and how it can actually hinder our ability to stay focused. By gaining a deeper understanding of multitasking, you can make informed decisions about how to manage your tasks and optimize your concentration.
 

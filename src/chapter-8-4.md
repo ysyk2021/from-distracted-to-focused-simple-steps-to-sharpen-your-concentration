@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Overwhelm
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques to overcome overwhelm and regain focus. Feeling overwhelmed can hinder your ability to concentrate and make progress towards your goals. By implementing the following steps, you can navigate through overwhelming situations and sharpen your concentration skills.
 

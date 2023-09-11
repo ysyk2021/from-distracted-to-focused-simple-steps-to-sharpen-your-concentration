@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building Focus
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for building focus and improving concentration. These strategies will help you overcome distractions and enhance your ability to stay focused on the task at hand.
 

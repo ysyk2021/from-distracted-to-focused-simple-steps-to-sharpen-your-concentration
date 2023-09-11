@@ -1,5 +1,4 @@
-Chapter 10: Overcoming Limiting Beliefs about Concentration
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will address the issue of limiting beliefs about concentration and explore strategies to overcome them. Limiting beliefs are negative thoughts or assumptions that hinder our ability to focus and concentrate effectively. By challenging and reframing these beliefs, we can unlock our full potential and develop a focused and concentrated mindset.
 
